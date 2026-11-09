@@ -3,8 +3,7 @@
 <img align="left" src="https://i.ibb.co/b5RHd0YR/image-2026-11-09-181755346.png"width="300px" />
 
 <br> <br>
-${\color{#ead2dc}SHOULD}$ ${\color{#392b31}I}$ ${\color{#ead2dc}STAY}$ .ᐣ
- ${\color{#ead2dc}SHOULD}$ ${\color{#392b31}I}$ ${\color{#ead2dc}GO}$ .ᐣ
+${\color{#ead2dc}SHOULD}$ ${\color{#392b31}I}$ ${\color{#ead2dc}STAY}$ .ᐣ ${\color{#ead2dc}SHOULD}$ ${\color{#392b31}I}$ ${\color{#ead2dc}GO}$ .ᐣ
 <br><img src="https://64.media.tumblr.com/d997a65d41cbc14faf8098abfb872608/18503e825059beff-4f/s2048x3072/d4dbca09c49c67efca903d86946d6442ffc74b2f.pnj" width=400px />
 <br>${\color{#a15a8d} Rhys}$ ${\color{#392b31}/}$ ${\color{#a15a8d}Kerry}$ ${\color{#c8aece}╏}$ ${\color{#5f4853}He}$ ${\color{#392b31}/}$ ${\color{#5f4853}Him}$ ${\color{#c8aece}╏}$ ${\color{#a15a8d}Twenty-Two}$
 <br>${\color{#a15a8d} British}$ & ${\color{#a15a8d} Irish}$ lurker on this hellsite.
