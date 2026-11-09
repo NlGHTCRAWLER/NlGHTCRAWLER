@@ -2,7 +2,7 @@
 <img align="left" src="https://64.media.tumblr.com/7d7dd462e1f8bc82732e2789ab6a561d/51a17bbed0bb3855-4c/s1280x1920/0a2fcb79412e71eae6c865ee141f925d10c5ad4e.pnj"width="400px" />
 
 <br> <br>
-$${\color{#ead2dc}SHOULD}$ ${\color{#5f4853}I}$ ${\color{#ead2dc}STAY}$ .ᐣ SHOULD I GO .ᐣ
+${\color{#ead2dc}SHOULD}$ ${\color{#5f4853}I}$ ${\color{#ead2dc}STAY}$ .ᐣ SHOULD I GO .ᐣ
 
 
 <p align="center">
