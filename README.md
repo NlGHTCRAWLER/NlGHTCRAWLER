@@ -1,10 +1,21 @@
 <p></p>
-<img align="left" src="https://i.ibb.co/sJVcLZrJ/image-2026-11-09-173623305.png"width="400px" />
+<img align="left" src="https://i.ibb.co/sJVcLZrJ/image-2026-11-09-173623305.png"width="200px" />
 
 <br> <br>
 ${\color{#ead2dc}SHOULD}$ ${\color{#5f4853}I}$ ${\color{#ead2dc}STAY}$ .ᐣ SHOULD I GO .ᐣ
 
 
+
+
+
+
+
+
+
+<br>
+<p></p>
+<br>
+<br>
 <p align="center">
 <img src="https://i.ibb.co/2075m49m/image.png"width="700px">
 <br>
