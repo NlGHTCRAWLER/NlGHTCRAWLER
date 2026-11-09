@@ -11,7 +11,7 @@ ${\color{#c8aece}Often}$ ${\color{#ead2dc}with}$ ${\color{#a15a8d}friends}$.
 <br>${\color{#ead2dc}Feel}$ ${\color{#ead2dc}free}$ ${\color{#ead2dc}to}$ ${\color{#a15a8d}C+H}$. ${\color{#ead2dc}I'm}$ ${\color{#6b3857}offtab}$, ${\color{#a15a8d}most}$ ${\color{#ead2dc}of}$ ${\color{#ead2dc}the}$ ${\color{#ead2dc}time}$. ${\color{#a15a8d}♯Rivals}$
 <br><img src="https://64.media.tumblr.com/506e037b829b228f838f240c3a576c23/90550969ea0a3b23-b9/s2048x3072/74803aadee32cdc0772a790a134b9d32a4f32392.pnj" width=470px />
 <br>
-                  ${\color{#6b3857}BAMF-LINKS}$ ${\color{#ead2dc}.ᐟ}$
+                 ${\color{#6b3857}BAMF-LINKS}$ ${\color{#ead2dc}.ᐟ}$
 <br>˗ˏˋ <a href="https://artfight.net/~hypericns">ArtFight</a>${\color{#a15a8d}╏}$<a href="https://rentry.co/EURODYNED">Rentry</a> ${\color{#a15a8d}╏}$ <a href="https://rhy5-w1nz.straw.page/">Strawpage</a> ${\color{#a15a8d}╏}$ <a href="https://patreon.com/EURODYNES">Patreon</a> ${\color{#a15a8d}╏}$ <a href="https://eurodyneism.atabook.org">Atabook</a> ˎˊ˗
 <br><img src="https://64.media.tumblr.com/d997a65d41cbc14faf8098abfb872608/18503e825059beff-4f/s2048x3072/d4dbca09c49c67efca903d86946d6442ffc74b2f.pnj" width=470px />
 <br> 
