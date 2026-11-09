@@ -1,8 +1,21 @@
+
 <p></p>
-<img align="left" src="https://i.ibb.co/sJVcLZrJ/image-2026-11-09-173623305.png"width="200px" />
+<img align="left" src="https://i.ibb.co/b5RHd0YR/image-2026-11-09-181755346.png"width="300px" />
 
 <br> <br>
-${\color{#ead2dc}SHOULD}$ ${\color{#5f4853}I}$ ${\color{#ead2dc}STAY}$ .ᐣ SHOULD I GO .ᐣ
+${\color{#ead2dc}SHOULD}$ ${\color{#392b31}I}$ ${\color{#ead2dc}STAY}$ .ᐣ
+ ${\color{#ead2dc}SHOULD}$ ${\color{#392b31}I}$ ${\color{#ead2dc}GO}$ .ᐣ
+<br><img src="https://64.media.tumblr.com/d997a65d41cbc14faf8098abfb872608/18503e825059beff-4f/s2048x3072/d4dbca09c49c67efca903d86946d6442ffc74b2f.pnj" width=400px />
+<br>${\color{#a15a8d} Rhys}$ ${\color{#392b31}/}$ ${\color{#a15a8d}Kerry}$ ${\color{#c8aece}╏}$ ${\color{#5f4853}He}$ ${\color{#392b31}/}$ ${\color{#5f4853}Him}$ ${\color{#c8aece}╏}$ ${\color{#a15a8d}Twenty-Two}$
+<br>${\color{#a15a8d} British}$ & ${\color{#a15a8d} Irish}$ lurker on this hellsite.
+Often with friends.
+<br>If alone, feel free to C+H. I'm offtab. 90% of the time.
+#a15a8d
+<br><img src="https://64.media.tumblr.com/506e037b829b228f838f240c3a576c23/90550969ea0a3b23-b9/s2048x3072/74803aadee32cdc0772a790a134b9d32a4f32392.pnj" width=400px />
+<p align="centre">
+  bhbhbbbh
+<p></p>
+
 
 
 
